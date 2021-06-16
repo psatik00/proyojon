@@ -1,2 +1,2 @@
 # proyojon
-I am a small web devloper
+★ I am a small web devloper ★ 
